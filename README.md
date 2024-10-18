@@ -1,5 +1,7 @@
+<div align="center">
+<h1>Kacedemia</h1>
+</div>
 
-# Kacedemia
 
 ### we teaches skills like 
 
