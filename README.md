@@ -9,7 +9,6 @@
 
 
 
-
-    social media
+social media
     
-    [Instagram](https://www.instagram.com/k_acedemia?igsh=bXQ5eGs5c3l5ancw)
+[Instagram](https://www.instagram.com/k_acedemia?igsh=bXQ5eGs5c3l5ancw)
