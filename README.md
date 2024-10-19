@@ -2,6 +2,12 @@
 <h1>Kacedemia</h1>
 </div>
 
+```css
+body {
+  background-color: #f0f0f0;
+}
+
+
 
 #### we teaches skills like 
 
