@@ -2,8 +2,7 @@
 <h1>Kacedemia</h1>
 </div>
 
-![Image](IMG_20241019_214225)
-
+![image](Internal storage/Download IMG_20241019_214225.jpg )
 
 #### we teaches skills like 
 
