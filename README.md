@@ -2,7 +2,8 @@
 <h1>Kacedemia</h1>
 </div>
 
-![image](Internal storage/Download IMG_20241019_214225.jpg )
+![image](Internal_storage/Download_IMG_20241019_214225.jpg )
+
 
 #### we teaches skills like 
 
