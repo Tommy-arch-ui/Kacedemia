@@ -21,7 +21,7 @@ Join our discord server you can find like minded peoples there and you can learn
 
 
 
-social media
+### social media
     
 [Instagram](https://www.instagram.com/k_acedemia?igsh=bXQ5eGs5c3l5ancw)
 
