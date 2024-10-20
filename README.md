@@ -13,8 +13,7 @@
 
 Join our discord server you can find like minded peoples there and you can learn so much skills for free there is a chance that you can become a better version on yourself we will teach you everything for free we hope you there see you in there. **Join before the limited seats run out only 99 seats are available**
 
-[discord](https://discord.gg/H3VwFpcAbS
-
+link is here = [discord](https://discord.gg/H3VwFpcAbS)
 
 
 
